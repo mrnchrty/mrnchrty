@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Web and App Interface
 - 📫 How to reach me: Just go to my Facebook Account: Maroine Charity or Ig Account: mrn_chrty
 - 😄 Pronouns: She
-- ⚡ Fun fact: I love pink as well as Taylor Swift
+- ⚡ Fun fact: I love pink, Taylor Swift and of course HIM! >-<
 <!---
 mrnchrty/mrnchrty is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
