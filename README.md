@@ -2,7 +2,7 @@
 - 👀 I’m interested in Designing Digital Products
 - 🌱 I’m currently learning HTML AND CSS
 - 💞️ I’m looking to collaborate on Web and App Interface
-- 📫 How to reach me just go to my Facebook Account: Maroine Charity or Ig Account: mrn_chrty
+- 📫 How to reach me: Just go to my Facebook Account: Maroine Charity or Ig Account: mrn_chrty
 - 😄 Pronouns: She
 - ⚡ Fun fact: I love pink as well as Taylor Swift
 <!---
