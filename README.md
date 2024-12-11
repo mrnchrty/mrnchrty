@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mrnchrty
+- 👋 Hi, I’m Cha
 - 👀 I’m interested in Designing Digital Products
 - 🌱 I’m currently learning HTML AND CSS
 - 💞️ I’m looking to collaborate on Web and App Interface
