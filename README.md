@@ -1,4 +1,4 @@
-# 💫 About Cha:
+About Me:
 Hello there!!! I am Cha, an IT student at BSU MABINI NEU.
 
 
